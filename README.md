@@ -1,5 +1,5 @@
 # 💫 About Me:
-I worked in a Software Company for 3.7 years from July 2022 to Feb 2026 ,<br>and over time it become a comfort zone for me .<br>However I realized that I was not growing in the direction I wanted to.<br>So I decided to step out ,  served 2 months notice period and got released on 9th Feb,2026 <br>and started my AI/ML journey from October 2025 .<br>Now I want to get placed in AI/ML entry level jobs 1 / 6Feedback<br>itsvgin@gmail.com<br></> & Crafted with 💛 Vishwa Gaurav<br>
+I worked in a Software Company for 3.7 years from July 2022 to Feb 2026 ,<br>and over time it become a comfort zone for me .<br>However I realized that I was not growing in the direction I wanted to.<br>So I decided to step out ,  served 2 months notice period and got released on 9th Feb,2026 <br>and started my AI/ML journey from October 2025 .<br>Now I want to get placed in AI/ML entry level jobs .
 
 
 ## 🌐 Socials:
